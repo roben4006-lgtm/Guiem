@@ -1,2 +1,0 @@
-# Guiem
-sádaaaas
